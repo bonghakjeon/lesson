@@ -1,2 +1,3 @@
 dgsdgsdgsgsg
 sdgsdgsdgsd
+mining test
